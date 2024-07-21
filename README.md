@@ -6,6 +6,4 @@
 
 #### Sobre essa Base de Conhacimento
 
-**Português:**
-
 Em construção...
